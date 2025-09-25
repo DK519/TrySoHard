@@ -1,2 +1,2 @@
-Who is not the one?
+Who is the one?
 !@#
